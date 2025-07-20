@@ -5,3 +5,5 @@ system, and expound the actual teachings of the great explorer of the truth, the
   occur in which toil and pain can procure him some great nil. To take a trivial example, which of us ever undertakes laborious physical exercise, 
   except to obtain some advantage from it? But who has any right to find fault with a man who chooses to enjoy a nil that has no annoying consequences, 
   or one who avoids a pain that produces no resultant nil?"
+
+  cambios de la nueva rama
